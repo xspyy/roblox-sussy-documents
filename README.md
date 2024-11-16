@@ -5,7 +5,7 @@ here you will find the most sigma (sorry for brainrot) files that, of course, no
 no i am not a leet haxor but yes i do have a site!!
 https://xspy.lol
 or
-https://zorara.uk
+https://zorara.uk <- it got suspended, RIP
 
 ```
 "dont ask about my methods"
